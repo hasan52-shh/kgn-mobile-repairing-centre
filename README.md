@@ -1,0 +1,2 @@
+# kgn-mobile-repairing-centre
+THIS  WEB DEVELOPED BY SHAH FOR ONLY PEOPLE SERVICES
